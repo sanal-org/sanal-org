@@ -1,5 +1,3 @@
-Sanal.org Tanıtım
-
 sanal.org forum hakkında
 
 Sanal.org
